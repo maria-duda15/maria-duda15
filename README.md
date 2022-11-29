@@ -36,7 +36,9 @@ R$ 4,50
 
 ![Image](https://user-images.githubusercontent.com/118744121/203403090-c9ea64cd-5fb3-4d89-9dd8-35fc0f23e8bf.png)
 
+cartões
 
+![Image](https://user-images.githubusercontent.com/118744121/204632964-96befd6b-8d64-48a6-ba63-807ae00c5e3c.png)
 
 
 
